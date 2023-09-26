@@ -4,6 +4,7 @@
 - tenho 15 anos
 - quero me formar em veterinaria
 - sou estudante E.M
+- namorando
 
 ### você pode entrar em contato comigo
 
